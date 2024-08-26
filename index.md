@@ -1,13 +1,13 @@
 # 你在干嘛
-- zgm
-A. zcf
-B. zsj
-C. zkf
-D. zwl
-E. zgh
-F. zj
-G. zy
-H. ztg
+- zgm \\
+A. zcf \\
+B. zsj \\
+C. zkf \\
+D. zwl \\
+E. zgh \\
+F. zj \\
+G. zy \\
+H. ztg 
 
 # How to respond to "what are you doing"?
 - https://www.wikihow.com/Respond-to-What-Are-You-Doing
