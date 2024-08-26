@@ -1,2 +1,17 @@
 # 你在干嘛
-> 哲学是一种性格问题，而不是逻辑问题: 哲学家不是根据证据，而是根据自己的性情来相信; 他的思想只是为了使他的直觉认为是真实的东西变得合理。
+- zgm
+A. zcf
+B. zsj
+C. zkf
+D. zwl
+E. zgh
+F. zj
+G. zy
+H. ztg
+
+# How to respond to "what are you doing"?
+- https://www.wikihow.com/Respond-to-What-Are-You-Doing
+
+"zgm" is such a simple question, but it's easy to feel like a deer caught in headlights when it's nekopara70622 who wants to know. Do you respond honestly? Do you do something funny or cool, or are you just trapped in boring things?
+![alt text](sui!.jpg)
+![alt text](sui!!.jpg)
